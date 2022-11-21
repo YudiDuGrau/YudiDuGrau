@@ -4,4 +4,4 @@
 - 📚Estou no 1° ano do EM
 - 🗿Estudo no colégio Garmatz.
 - 🇪🇪FBPA 
--🥶O importante é o que importa
+- 🥶O importante é o que importa
